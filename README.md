@@ -4,4 +4,6 @@ Hi, I'm Amr Gara, Software Engineering student from Tunisia
 
 How to reach me ? 
 linkedin : www.linkedin.com/in/amr-gara-19b548171
+Gmail : amrgara7@gmail.com
+
 
